@@ -3,9 +3,8 @@ ncd ncds n
 nvbsnvbsnsv
 ggdsdsghgmg
 hdshdhmhmj
-nxb cnb
-cdndsbcnadnc
-chdsbcbs
-cbnsdba
-bvdnwbnfwe wn
- dcbdsa cds
+dsbvbsa c
+csb abcs 
+sab ab
+abvasbvab
+cbsan a
